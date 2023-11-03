@@ -1,0 +1,2 @@
+# chordstela
+Chord Gitar Pemula
